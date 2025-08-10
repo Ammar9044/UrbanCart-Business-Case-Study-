@@ -82,6 +82,4 @@ I combine analytical rigor with business sense to uncover insights that drive re
 
 Thanks for visiting! Feel free to explore and reach out anytime.
 
----
 
-Would you like help preparing a presentation or interview talking points for this project?
